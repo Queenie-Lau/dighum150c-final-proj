@@ -1,2 +1,2 @@
 # dighum150c-final-proj
-An Analysis into Anthropomorphism in Alice in Wonderland
+An Analysis on Class and Social Structures in Alice’s Adventures in Wonderland
